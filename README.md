@@ -24,7 +24,7 @@ Despertar o interesse da comunidade na área da robótica e da eletrônica, auxi
 
 Sinta-se confortável para nos contatar por e-mail: robolab@restinga.ifrs.edu.br
 
-Visite o nosso [canal do YouTube do RoboLab Restinga](https://www.youtube.com).
+Visite o nosso [canal do YouTube do RoboLab Restinga](https://www.youtube.com/@robolablaboratorioderoboti6134).
 
 Nos siga no [Instagram](https://www.instagram.com/robolabrestinga/).
 
